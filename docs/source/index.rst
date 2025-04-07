@@ -35,4 +35,4 @@ Conclusion
 
 In conclusion, Area 52 is a brand that truly embodies the spirit of innovation and progress in the cannabis industry. With a wide range of products, a commitment to quality and safety, and a dedication to customer satisfaction, Area 52 is the perfect choice for those seeking a unique and effective cannabis experience. Whether you’re a seasoned enthusiast or just starting out, Area 52 has something for everyone. So why wait? Explore the world of Area 52 today and discover a new way to experience cannabis.
 
-For more information, be sure to visit area52.com/thc-gummies/!
+For more information, be sure to visit https://area52.com/thc-gummies/!
